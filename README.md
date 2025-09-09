@@ -15,5 +15,5 @@ Ingénieur de formation avec une expérience dans le conseil, je me passionne po
 
 ## 📫 Contact
 
-* **LinkedIn : https://www.linkedin.com/in/isa-bulut-a79497150/
+* **LinkedIn : https://www.linkedin.com/in/isa-bulut-a79497150/ **
 * **Email :** isa.bulut.pro@gmail.com
